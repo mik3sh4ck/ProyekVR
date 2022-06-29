@@ -1,4 +1,4 @@
 #VR PROJECT#
 
-#VIDEO GAMEPLAY!#
-https://drive.google.com/file/d/1eUFBZSvEO9tKcnYWYzsHwMFYlhtBEhRK/view?usp=sharing
+c14180145 - michael agustinus
+c14180147 - reyner hosea
